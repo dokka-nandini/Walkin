@@ -14,4 +14,4 @@ https://www.instagram.com/reel/DcoNDvVyUJl/?igsi=MW9zZzd3aHE5MTFr
 
 https://www.instagram.com/reel/Dcpzd1dzGbB/?igsi=MWlscm81NTJ0YXpkZg==
 
-gorantla
+ok eu tc vathuna pray 87
