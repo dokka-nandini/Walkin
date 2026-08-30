@@ -16,3 +16,4 @@ https://www.instagram.com/reel/Dcpzd1dzGbB/?igsi=MWlscm81NTJ0YXpkZg==
 
 
 imp
+ok na tc 87 ammma ki eu ec thinnava vastha tmr
