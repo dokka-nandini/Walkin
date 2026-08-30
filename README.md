@@ -14,6 +14,5 @@ https://www.instagram.com/reel/DcoNDvVyUJl/?igsi=MW9zZzd3aHE5MTFr
 
 https://www.instagram.com/reel/Dcpzd1dzGbB/?igsi=MWlscm81NTJ0YXpkZg==
 
-
-imp
-ok na tc 87 ammma ki eu ec thinnava vastha tmr
+ok mom
+in kadiri no buses is there pray
